@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Eshley Prinzoff 🙂
+## Bem-vindo(a) ao perfil da Eshley Prinzoff 😊
 
  <div>
    <a href="https://github.com/eshleyprinzoff">
